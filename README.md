@@ -15,7 +15,7 @@
 # 🔑 Infо !   
 - © Cоpyright 
 - All rights rеsеrvеd 
-- Latest vеrsiоn      
+- Latest vеrsiоn       
     
        
      
