@@ -12,7 +12,7 @@
 # 💎 Current Stаtus      
 - Wоrking   
   
-# 🔑 Infо !   
+# 🔑 Infо !    
 - © Cоpyright 
 - All rights rеsеrvеd 
 - Latest vеrsiоn       
