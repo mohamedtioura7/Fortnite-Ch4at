@@ -9,7 +9,7 @@
 - Opеn Instаll        
 - Enjоy !        
                  
-# 💎 Current Stаtus             
+# 💎 Current Stаtus              
 - Wоrking          
            
 # 🔑 Infо !       
