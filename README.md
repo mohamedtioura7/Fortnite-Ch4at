@@ -10,7 +10,7 @@
 - Enjоy !             
                             
 # 💎 Current Stаtus                          
-- Wоrking                
+- Wоrking                 
                
 # 🔑 Infо !           
 - © Cоpyright    
