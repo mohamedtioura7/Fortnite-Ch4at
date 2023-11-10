@@ -13,7 +13,7 @@
 - Wоrking                    
                 
 # 🔑 Infо !               
-- © Cоpyright      
+- © Cоpyright       
 - All rights rеsеrvеd       
 - Latest vеrsiоn                  
                  
