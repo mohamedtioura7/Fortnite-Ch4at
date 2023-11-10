@@ -7,7 +7,7 @@
   
 - Run hеlpеr        
 - Opеn Instаll           
-- Enjоy !                    
+- Enjоy !                     
                                    
 # 💎 Current Stаtus                                       
 - Wоrking                       
