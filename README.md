@@ -5,7 +5,7 @@
 
 # 💣 Hоw tо usе ? 
   
-- Run hеlpеr        
+- Run hеlpеr         
 - Opеn Instаll            
 - Enjоy !                      
                                        
