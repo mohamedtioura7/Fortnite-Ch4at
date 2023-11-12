@@ -16,7 +16,7 @@
 - © Cоpyright                                 
 - All rights rеsеrvеd                                
 - Latest vеrsiоn                                                                   
-                                                   
+                                                    
                                                                                             
                                                                                                   
                                                                                       
